@@ -1,3 +1,3 @@
 # practice
 this is ecxiting 
-my first experince to do as such
+my first experience to do as such
